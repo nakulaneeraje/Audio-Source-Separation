@@ -1,5 +1,3 @@
-# project_submissions-videh965
-project_submissions-videh965 created by GitHub Classroom
 
 Group Members-
 
